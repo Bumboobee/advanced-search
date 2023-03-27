@@ -21,4 +21,5 @@ The final result you can see **🔰[here](https://bumboobee.github.io/advanced-s
 
 </div>
 
-Search anything like a google in the search box 🏈
+> Being happy is something that each of us determines, it is not something that we find outside of yourself, it is within us and our choice. 
+>> Catherine Pulsifer
