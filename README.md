@@ -19,7 +19,7 @@ The final result you can see **🔰[here](https://bumboobee.github.io/advanced-s
 
 ![5d29a1f39c03b0213541d04d352d3d65](https://user-images.githubusercontent.com/94147847/227980227-465f2067-d17e-4bbc-aaab-2a08da0bae6f.gif)
 
-</div>
-
 > Being happy is something that each of us determines, it is not something that we find outside of yourself, it is within us and our choice. 
 >> Catherine Pulsifer
+
+</div>
